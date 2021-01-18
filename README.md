@@ -8,7 +8,7 @@
 
 ### Objective
 
-Clear information of the public, increase in transparency, diminishing panic.
+Clear information about the pandemic in Romania, increase in transparency, diminishing panic.
 
 ### How
 
